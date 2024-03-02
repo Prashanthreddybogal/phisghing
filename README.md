@@ -1,1 +1,1 @@
-# phisghing
+# phishing
